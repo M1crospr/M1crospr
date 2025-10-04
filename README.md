@@ -1,6 +1,6 @@
 <br>
 
-<kbd><br>[free palestine!](https://arab.org/click-to-help/palestine/) <br>&nbsp;  </kbd> 
+<kbd><br>[free palestine!](https://arab.org/click-to-help/palestine/) <br><br> ac:kyayamo on tumblr<br>&nbsp;  </kbd> 
 <img src="https://file.garden/aFQP9esOHyVvl9zD/scnadalbara.png" width="250" align="center">
 <kbd><br>linkies <br> - [atabook](https://huffpuff.atabook.org/) <br><br> -[pronouns.cc](https://pronouns.cc/@Five) <br><br> -[strawpage](https://dontlooklook.straw.page/) <br><br> - [find my interests bromine](https://listography.com/fiftyreasonstodie) <br><br> better viewed in pc btw sorry not sorry mobile users <br>&nbsp;  </kbd> 
 
