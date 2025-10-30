@@ -1,4 +1,4 @@
-<img src="https://file.garden/aFQP9esOHyVvl9zD/yaoi.png" align="left" width="450"/>
+<img src="https://file.garden/aFQP9esOHyVvl9zD/yaoi.png" align="right" width="450"/>
 <br> <img src="https://komarev.com/ghpvc/?username=p4rtypoison&style=water&base=1851&label=quiet_please!&color=000000"/>
 
 alts ; [@c0nsci0usne33](https://github.com/c0nsci0usne33) , [@l-Me-Myself](https://github.com/l-Me-Myself)<br>
