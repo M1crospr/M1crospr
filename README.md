@@ -4,3 +4,6 @@
 alts ; [@c0nsci0usne33](https://github.com/c0nsci0usne33) , [@l-Me-Myself](https://github.com/l-Me-Myself)<br>
 
 <kbd><br>linkies <br> - [atabook](https://huffpuff.atabook.org/) <br><br> - [pronouns.cc](https://pronouns.cc/@Five) <br><br> - [strawpage](https://dontlooklook.straw.page/) <br><br> - [find my interests bromine](https://listography.com/fiftyreasonstodie) <br><br> better viewed in pc btw sorry not sorry mobile users<br><br> *ac: @Misty_Te4 on X*<br>&nbsp;  </kbd> 
+
+<br>
+keep in mind, I update my links once in a blue moon + reply 2 gimmicks/ata msgs due to ME having A LYF T_T
