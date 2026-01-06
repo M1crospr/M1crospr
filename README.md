@@ -3,6 +3,6 @@
 </p>
 
 <p align="center">
-<img src="hhttps://file.garden/aFQP9esOHyVvl9zD/OH%20WEASLY.gif" width="100">
+<img src="hhttps://file.garden/aFQP9esOHyVvl9zD/OH%20WEASLY.gif" width="100"/>
 </p>
 
