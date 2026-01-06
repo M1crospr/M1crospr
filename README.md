@@ -1,4 +1,4 @@
-<p align="center">
+<p align="left">
   <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=dance%dance&color=080808&base=1241" alt="Profile Views"/>
 </p>
 
