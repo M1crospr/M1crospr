@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
- <img src="https://file.garden/aFQP9esOHyVvl9zD/tam%20tam.jpg" width="350">
+ <img width="852" height="480" alt="image" src="https://github.com/user-attachments/assets/be160dc2-655a-4297-a51a-71186177076a" />
 </p>
