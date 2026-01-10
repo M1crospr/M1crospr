@@ -10,7 +10,8 @@
 </p>
 
 <div align="center">
-
-<kbd><br>[atabook](https://holdontillmay.atabook.org/)<br><br>[pronouns.cc](https://pronouns.cc/@Five)<br>&nbsp;  </kbd>
+  
+[atabook](https://holdontillmay.atabook.org/)
+[pronouns.cc](https://pronouns.cc/@Five)
 
 </div>
