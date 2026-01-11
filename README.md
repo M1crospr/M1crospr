@@ -11,8 +11,8 @@
 
 <div align="center">
   subscribe and hit dat bell icon 4 more future contents (spoiler alert: none)
+  c*h is ok Ok
   
-[atabook](https://holdontillmay.atabook.org/)
-[pronouns.cc](https://pronouns.cc/@Five)
+[atabook](https://holdontillmay.atabook.org/)  <- pick your poison -> [pronouns.cc](https://pronouns.cc/@Five)
 
 </div>
