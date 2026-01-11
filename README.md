@@ -10,6 +10,7 @@
 </p>
 
 <div align="center">
+  subscribe and hit dat bell icon 4 more future contents (spoiler alert: none)
   
 [atabook](https://holdontillmay.atabook.org/)
 [pronouns.cc](https://pronouns.cc/@Five)
