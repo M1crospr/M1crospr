@@ -16,6 +16,6 @@
 <br>
 frequently offtab w2i , c*h is okay 
   
-[letter to santa klaus](https://holdontillmay.atabook.org/)  <- choose your poison -> [me](https://pronouns.cc/@Five)
+[letter to santa klaus](https://holdontillmay.atabook.org/)  <- pick your poison -> [me](https://pronouns.cc/@Five)
 
 </div>
