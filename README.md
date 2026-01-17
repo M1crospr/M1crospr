@@ -1,12 +1,10 @@
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=gambit&color=080808&base=1241" alt="Profile Views"/>
-</p>
+
 
 <div align="center">
   
   [Click for Palestine](https://arab.org/click-to-help/palestine/)
 
-
+</div>
 
 <div align="center">
   
@@ -19,3 +17,7 @@ $\color{#D69EEB}{\textsf{c*h super duper encouraged :), w2i as I'm frequently of
 $\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - Ata / 2nd- Prns.cc}}$ 
 
 </div>
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=gambit&color=080808&base=1241" alt="Profile Views"/>
+</p>
