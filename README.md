@@ -4,7 +4,7 @@
 
 <div align="center">
   
-  [Palestine](https://arab.org/click-to-help/palestine/)
+  [Click for Palestine](https://arab.org/click-to-help/palestine/)
 
 
 
