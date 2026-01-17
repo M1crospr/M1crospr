@@ -1,6 +1,8 @@
 
 
 <div align="center">
+
+<img src="https://file.garden/aFQP9esOHyVvl9zD/purplecheckers.webp" width="600">
   
   [Click for Palestine](https://arab.org/click-to-help/palestine/)
 
@@ -19,5 +21,7 @@ $\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - Ata
 </div>
 
 <p align="center">
+    <img src="https://file.garden/aFQP9esOHyVvl9zD/lineee.png" width="200">
   <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=gambit&color=080808&base=1241" alt="Profile Views"/>
+  <img src="https://file.garden/aFQP9esOHyVvl9zD/lineee.png" width="200">
 </p>
