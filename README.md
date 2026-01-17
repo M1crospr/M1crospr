@@ -11,6 +11,6 @@ $\color{#D69EEB}{\textsf{c*h super duper encouraged :), w2i as I'm frequently of
 
 <a href="https://holdontillmay.atabook.org/"> <img src="https://file.garden/aFQP9esOHyVvl9zD/catma.png" width="70"> <a href="https://pronouns.cc/@Five"> <img src="https://file.garden/aFQP9esOHyVvl9zD/nikolai.png" width="70">
 
-$\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - ata / 2nd- Prns.cc}}$ 
+$\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - Ata / 2nd- Prns.cc}}$ 
 
 </div>
