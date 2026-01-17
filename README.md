@@ -9,6 +9,7 @@
   
 $\color{#D69EEB}{\textsf{c*h super duper encouraged :), w2i as I'm frequently offtab}}$ 
 
- <img src="https://file.garden/aFQP9esOHyVvl9zD/catma.png" width="70" link="https://holdontillmay.atabook.org/"> <br> [letter to santa klaus](https://holdontillmay.atabook.org/) [me](https://pronouns.cc/@Five)
+
+ <img src="https://file.garden/aFQP9esOHyVvl9zD/catma.png" width="70" href="https://holdontillmay.atabook.org/"> <br> [letter to santa klaus](https://holdontillmay.atabook.org/) [me](https://pronouns.cc/@Five)
 
 </div>
