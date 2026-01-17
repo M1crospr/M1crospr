@@ -5,6 +5,8 @@
 
 
 <div align="center">
+  <img src="https://file.garden/aFQP9esOHyVvl9zD/sigma3.jpg" width="300">
+  
   subscribe and hit that bell icon 4 more future contents (spoiler alert: none)
   <br>
 
