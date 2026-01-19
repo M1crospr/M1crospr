@@ -14,9 +14,9 @@
   
 $\color{#D69EEB}{\textsf{c*h super duper encouraged :), w2i as I'm frequently offtab}}$ 
 
-<a href="https://holdontillmay.atabook.org/"> <img src="https://file.garden/aFQP9esOHyVvl9zD/catma.png" width="70"> <a href="https://pronouns.cc/@Five"> <img src="https://file.garden/aFQP9esOHyVvl9zD/nikolai.png" width="70">
+<a href="https://holdontillmay.atabook.org/"> <img src="https://file.garden/aFQP9esOHyVvl9zD/catma.png" width="70"> <a href="https://pronouns.cc/@Five"> <img src="https://file.garden/aFQP9esOHyVvl9zD/nikolai.png" width="70"> <a href="https://tangledinthegreatescape.straw.page/"> <img src="https://file.garden/aFQP9esOHyVvl9zD/fyodor.png" width="70">
 
-$\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - Ata / 2nd- Prns.cc}}$ 
+$\color{#C741EC}{\textsf{click on da cats,}}$ $\color{#BE1396}{\textsf{1st - Ata / 2nd- Prns.cc/ 3rd- Straw}}$ 
 
 </div>
 
